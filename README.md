@@ -5,9 +5,9 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=vickyftw" alt="vickyftw" /></a> </p>
 
-- 🔭 I’m currently working on **sʜᴇʟʙʏ - ᴍᴜsɪᴄᴋ**
+- 🔭 I’m currently working on **ᴍᴜsɪᴄ ʙᴏᴍᴛ**
 
-- 🌱 I’m currently learning **ᴇᴅɪᴛɪɴɢ ,ᴇꜰx, ᴄᴏᴅɪɴɢ , ɢᴏᴏᴅ sᴛᴜꜰꜰs**
+- 🌱 I’m currently learning **ᴇᴅɪᴛɪɴɢ ,ᴇꜰx, ᴄᴏᴅɪɴɢ**
 
 - 📫 How to reach me **@Kiddo_Gang | @angelsupports**
 
