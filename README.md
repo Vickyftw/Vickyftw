@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **ᴇᴅɪᴛɪɴɢ ,ᴇꜰx, ᴄᴏᴅɪɴɢ**
 
-- 📫 How to reach me **@Kiddo_Gang | @angelsupports**
+- 📫 How to reach me **@Lost_Kiddo | @angelsupports**
 
 - ⚡ Fun fact **ɪ ᴇᴠᴇɴ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ ᴄᴏᴅɪɴɢ sᴛᴜꜰꜰs 😂🌚✨**
 
