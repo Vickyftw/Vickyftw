@@ -5,13 +5,13 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=vickyftw" alt="vickyftw" /></a> </p>
 
-- 🔭 I’m currently working on **ᴍᴜsɪᴄ ʙᴏᴍᴛ**
+- 🔭 I’m currently working on :**ᴠɪᴄᴋʏ ʙᴏᴛ ᴜɴɪᴠᴇʀsᴇ**
 
-- 🌱 I’m currently learning **ᴇᴅɪᴛɪɴɢ ,ᴇꜰx, ᴄᴏᴅɪɴɢ**
+- 🌱 I’m currently learning :**ᴇᴅɪᴛɪɴɢ ,ᴇꜰx,ᴄᴏᴅɪɴɢ**
 
-- 📫 How to reach me **@Lost_Kiddo | @angelsupports**
+- 📫 How to reach me  :**@Lost_Kiddo | @angelsupports**
 
-- ⚡ Fun fact **ɪ ᴇᴠᴇɴ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ ᴄᴏᴅɪɴɢ sᴛᴜꜰꜰs 😂🌚✨**
+- ⚡ Fun fact :**ɪ ᴇᴠᴇɴ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ ᴄᴏᴅɪɴɢ sᴛᴜꜰꜰs 😂🌚✨**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
